@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @neomunuke and I upload random programs to practice 😊
+- 👋 Hi, I’m @Azjinsol and I upload random programs to practice 😊
 
 
 
